@@ -5,5 +5,5 @@ Moon Animation for free fuck yeah!
 
 If you DO NOT know how to download it watch his short 24 second tutorial
 
-[Tutorial](https://github.com/Pooglol/MoonAnimatorForFree/blob/main/Moon%20Animator%202.rbxmx)
+[Tutorial Link!](https://files.catbox.moe/y58wn5.mp4)
 
